@@ -7,3 +7,5 @@ SCIENTIFIC-CALCULATOR-VIDEO:-https://drive.google.com/file/d/1XW2-OG-7Zqc3SuJ_yD
 SIGN UP PAGE VIDEO:-https://drive.google.com/file/d/1592-2dECPppnoXJ7jQAW5JeulCPCq5tO/view?usp=sharing
 
 COMPANY PORTFOLIO VIDEO :-https://drive.google.com/file/d/15Zp2_W-nhjC_SToznFYu5M5uwlWVmsBp/view?usp=sharing
+
+AI WEB PAGE VIDEO:-https://drive.google.com/file/d/1u6UpCLX8x-mdYbCFEOwQrDBFEO_JDRHm/view?usp=sharing
