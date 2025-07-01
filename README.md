@@ -9,3 +9,5 @@ SIGN UP PAGE VIDEO:-https://drive.google.com/file/d/1592-2dECPppnoXJ7jQAW5JeulCP
 COMPANY PORTFOLIO VIDEO :-https://drive.google.com/file/d/15Zp2_W-nhjC_SToznFYu5M5uwlWVmsBp/view?usp=sharing
 
 AI WEB PAGE VIDEO:-https://drive.google.com/file/d/1u6UpCLX8x-mdYbCFEOwQrDBFEO_JDRHm/view?usp=sharing
+
+QUICK NOTES WEBPAGE VIDEO:-https://drive.google.com/file/d/1sV7ST1tZYIfjrEBiKX5X7jQ6_jVn2FeS/view?usp=sharing
