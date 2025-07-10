@@ -11,3 +11,5 @@ COMPANY PORTFOLIO VIDEO :-https://drive.google.com/file/d/15Zp2_W-nhjC_SToznFYu5
 AI WEB PAGE VIDEO:-https://drive.google.com/file/d/1u6UpCLX8x-mdYbCFEOwQrDBFEO_JDRHm/view?usp=sharing
 
 QUICK NOTES WEBPAGE VIDEO:-https://drive.google.com/file/d/1sV7ST1tZYIfjrEBiKX5X7jQ6_jVn2FeS/view?usp=sharing
+
+WEBSITE VIDEO:-https://drive.google.com/file/d/17zlPpLfhw8xxjbTKVPPb_ovKry9MRnNG/view?usp=sharing
